@@ -1,16 +1,14 @@
-## Hi there 👋
-
-<!--
-**bastiancooper/bastiancooper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+❝  ⌗ ﹒ i　 owe　 you　 a　 black　 eye　 and　 two　 kisses.  ໒꒱  ❞
+</a>
+<p align="center">
+<img src="https://i.ibb.co/zVFqdHZ7/blur-edges-3.png" />
+<p align="center">
+<p align="center">
+cuddles 　+ 　hiding　 is 　okay 　unless 　you're 　in 　my 　dni.
+<p align="center">
+i　 freely　 hide　 so　 if　 i'm 　sitting　 with　 someone 　weird
+<p align="center">
+it's 　because 　i 　have 　them 　hidden.　 please　 don't　 be
+<p align="center">
+scared 　to 　interact. 　i 　love 　making　 friends. 　        𓏼𝜗℘ ◟  ͜⠀◞
