@@ -1,5 +1,5 @@
 <p align="center">
-❝  ⌗ ﹒ i　 owe　 you　 a　 black　 eye　 and　 two　 kisses.  ໒꒱  ❞
+❝  ⌗ ﹒ do　 i　 creep　 you　 out .ᐣ  do　 i　 creep　 you　 out .ᐣ ໒꒱  ❞
 </a>
 <p align="center">
 <img src="https://i.ibb.co/zVFqdHZ7/blur-edges-3.png" />
