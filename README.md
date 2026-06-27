@@ -2,7 +2,7 @@
 ❝  ⌗ ﹒ the　 me　 that　 you　 know  　is  　now　 made　 up　 of　 wires 　 . ໒꒱  ❞
 </a>
 <p align="center">
-<img src="https://i.ibb.co/fzJMjvRz/IMG-9539.png" />
+<img src="https://64.media.tumblr.com/439081064f5d601f51f44d511057a8d1/d416d34ccc1cc73d-85/s250x400/db5ffcaf22213e7e5062cba065fa5b46b777ed27.gifv" />
 <p align="center">
 <p align="center">
 cuddles 　+ 　hiding　 is 　okay 　unless 　you're 　in 　my 　dni.
